@@ -16,7 +16,7 @@ aka咔叽没麻系得哆作嗦油啰西库的
 
 
 
-This is the End，bye～
+This is the End, hope u like it, bye～
 
 
 
